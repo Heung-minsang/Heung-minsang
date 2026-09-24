@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Mechatronics and software Engineering ...
 - 💞️ I’m looking to collaborate on various coding fields
 - 📫 How to reach me ..@sangdavid38@gmail.com
-- 😄 Pronouns: ...MR😂😁
+- 😄 Pronouns: ...su/per/cool
 - ⚡ Fun fact: Did you know only bullets do there job after being fired?😁
 
 <!---
